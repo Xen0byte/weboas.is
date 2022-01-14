@@ -1,2 +1,2 @@
 # weboas.is
-Rip Webby 1992-2022
+RIP Webby 1992-2022
